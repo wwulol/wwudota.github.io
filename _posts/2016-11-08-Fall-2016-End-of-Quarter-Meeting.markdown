@@ -8,6 +8,10 @@ Fall Quarter 2016 is reaching its end at Western Washington University. Join The
 
 **Our last meeting of the quarter will take place on November 18th a Friday, from 6 PM to 9 PM.**
 
-Join us for 5v5 or 3v3 in-houses. We may even have enough interest to host a King of the Hill styled 1v1 tournament :)
+More info on our Facebook event [HERE](http://https://www.facebook.com/events/1155464474538171/)
+
+Join us for 5v5 or 3v3 in-houses and forget about finals for a bit. We may even have enough interest to host a King of the Hill styled 1v1 tournament :)
+
+
 
 <!-- Main -->
